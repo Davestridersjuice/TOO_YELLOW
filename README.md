@@ -1,4 +1,61 @@
-## Hi there 👋
+<div align="center">
+
+<img width="800" height="230" alt="image" src="https://github.com/user-attachments/assets/fcc3ec9e-8d29-49ea-aa25-68822c54d185" />
+
+# *☆ ☆ Hello! ☆ ☆*
+
+<img width="736" height="736" alt="image" src="https://github.com/user-attachments/assets/7806dd38-449f-4bf9-a85b-2963a544c4fc" />
+
+<img width="800" height="230" alt="image" src="https://github.com/user-attachments/assets/1177c65e-ae53-40e3-81e5-8cbcd81e26a1" />
+
+<img width="1200" height="132" alt="image" src="https://github.com/user-attachments/assets/f92de7c3-4e44-4e93-bf75-71263812c59c" />
+
+**I'm Azure, but I also have some other names such as Claudia or kani. I'm free for any other nicknames ^_^**
+
+**My pronouns r He/She/They (Genderfluid)** <br>
+
+**I plan to get more into deltarune and touhou soon  ☆  I'm looking forward to finding more fandoms!** <br>
+
+
+## ⚠️⚠️I'M A MINOR⚠️⚠️
+
+**Discord** - nepmew
+
+**!!I'LL TRY MAKING MORE RESPOSITORIES IN THE FUTURE!! I think..**
+
+ 🐈  🐈  🐈  🐈  🐈  🐈  🐈  🐈  🐈  🐈  🐈  🐈  🐈  🐈  🐈  🐈  🐈  🐈  🐈  🐈  🐈 
+
+<img width="588" height="200" alt="image" src="https://github.com/user-attachments/assets/86157550-81c3-4e5d-b522-28cf0c78b778" />
+
+## Stuff about me ᓚᘏᗢ
+
+<div align="center">
+
+🐈 I'm usually sitting in ponytown with my friends {mentioned in my bio n stuff} :D 🐈<br>
+🐈 I've been trying to be nicer lately as i have been pretty rude so I'm working on that! 🐈<br>
+🐈 I like roblox (Die of death, Forsaken, etc..), currently hyperfixated on tgcf, danganronpa (All versions!), children of sky, etc.. 🐈<br>
+🐈 I'm usually watching yt or offtab while on pt (ponytown) unless I'm chatting with friends 🐈<br>
+🐈 I like to use emoticons lots! And I sometimes simplify/shorten words to type faster... 🐈<br>
+🐈 I'm usually very open with my weirdness so pls tell me if I ever make u uncomfy or anything! 🐈<br>
+🐈 I may sometimes yap a bunch and move around a lot!🐈<br>
+🐈 I LOOVE science. It's so cool figuring out things that are actually REAL! 🐈<br>
+🐈 I may say some really weird thing as a joke and not use /j... I only rlly use /srs or /hj 🐈<br>
+🐈 I REALLY like cats and the color purple... Purple is my fav color its so pretty 🐈<br>
+🐈 That's all I could think of here -_-🐈<br>
+
+## DNI!!
+
+😥 Darkshippers/proshippers/yumejoshi(also yumedanshi)/shota/loli con/kudo/para and anything else of that problematic nature<br>
+😥 Dandy's world fans (I'll make an exception if youre cool ig... Just DON'T reccomend dandy's world to me..)<br>
+ -I'll add more as I think- <br>
+
+
+<img width="341" height="246" alt="image" src="https://github.com/user-attachments/assets/f2e0ee26-119a-48cf-8b06-abf17d78961f" /> <br>
+
+<img width="588" height="592" alt="image" src="https://github.com/user-attachments/assets/976b1eb4-72f1-4790-a666-740a02d02c28" />
+
+<img width="960" height="540" alt="image" src="https://github.com/user-attachments/assets/71c2625c-ec4a-42a2-a9b7-87e60b5e85b9" />
+
 
 <!--
 **Davestridersjuice/Davestridersjuice** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
