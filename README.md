@@ -20,6 +20,10 @@
 
 **Discord** - nepmew
 
+**Pinterest** - https://www.pinterest.com/r_isenII/
+
+## Get to know me better before asking 4 any other socials!
+
 **!!I'LL TRY MAKING MORE RESPOSITORIES IN THE FUTURE!! I think..**
 
  🐈  🐈  🐈  🐈  🐈  🐈  🐈  🐈  🐈  🐈  🐈  🐈  🐈  🐈  🐈  🐈  🐈  🐈  🐈  🐈  🐈 
