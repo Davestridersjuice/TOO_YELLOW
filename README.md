@@ -30,9 +30,9 @@
 
 <div align="center">
 
-🐈 I'm usually sitting in ponytown with my friends {mentioned in my bio n stuff} :D 🐈<br>
+🐈 I'm usually sitting in ponytown with my friends {mentioned in my bio n stuff} 🐈<br>
 🐈 I've been trying to be nicer lately as i have been pretty rude so I'm working on that! 🐈<br>
-🐈 I like roblox (Die of death, Forsaken, etc..), currently hyperfixated on tgcf, danganronpa (All versions!), children of sky, etc.. 🐈<br>
+🐈 I like roblox (Die of death, Forsaken, etc..), currently focused on tgcf, danganronpa (All versions!), children of light: sky, etc.. 🐈<br>
 🐈 I'm usually watching yt or offtab while on pt (ponytown) unless I'm chatting with friends 🐈<br>
 🐈 I like to use emoticons lots! And I sometimes simplify/shorten words to type faster... 🐈<br>
 🐈 I'm usually very open with my weirdness so pls tell me if I ever make u uncomfy or anything! 🐈<br>
@@ -60,7 +60,7 @@
 
 <div align="center">
 
-You found these adorable kitties at the bottom! :D
+You found these adorable kitties at the bottom!
 
 
 
