@@ -58,13 +58,15 @@
 
 <img width="588" height="592" alt="image" src="https://github.com/user-attachments/assets/976b1eb4-72f1-4790-a666-740a02d02c28" />
 
-<img width="960" height="540" alt="image" src="https://github.com/user-attachments/assets/71c2625c-ec4a-42a2-a9b7-87e60b5e85b9" />
+<img width="800" height="230" alt="image" src="https://github.com/user-attachments/assets/f47197f9-4381-453b-acaa-92c42727ce0a" />
+
+<img width="960" height="540" alt="image" src="https://github.com/user-attachments/assets/6e171f89-5e30-4f52-abba-d9a6ce3c8ee1" />
 
 <img width="864" height="226" alt="image" src="https://github.com/user-attachments/assets/505acf3c-d532-482b-8faa-0a1614c82c89" />
 
 <div align="center">
 
-You found these adorable kitties at the bottom!
+`You found these adorable kitties at the bottom!`
 
 
 
