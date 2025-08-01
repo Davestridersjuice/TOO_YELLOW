@@ -44,7 +44,7 @@
 
 ## DNI!!
 
-😥 Darkshippers/proshippers/shota/loli con/kudo/and anything else of that problematic nature<br>
+😥 Darkshippers/proshippers/shota/loli con/and anything else of that problematic nature<br>
 😥 Dandy's world fans (I'll make an exception if youre cool ig... Just DON'T reccomend dandy's world to me..)<br>
 😥 If you support AI
  -I'll add more as I think- <br>
