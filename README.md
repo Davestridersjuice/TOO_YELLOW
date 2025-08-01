@@ -4,11 +4,7 @@
 
 # *☆ ☆ Hello! ☆ ☆*
 
-<img width="736" height="736" alt="image" src="https://github.com/user-attachments/assets/7806dd38-449f-4bf9-a85b-2963a544c4fc" />
-
-<img width="800" height="230" alt="image" src="https://github.com/user-attachments/assets/1177c65e-ae53-40e3-81e5-8cbcd81e26a1" />
-
-<img width="1200" height="132" alt="image" src="https://github.com/user-attachments/assets/f92de7c3-4e44-4e93-bf75-71263812c59c" />
+<img width="1200" height="675" alt="image" src="https://github.com/user-attachments/assets/6020d829-6da2-41a8-80ef-f46fc07619c9" />
 
 **I'm Azure, but I also have some other names such as Claudia or kani. I'm free for any other nicknames ^_^**
 
@@ -16,8 +12,11 @@
 
 **I plan to get more into deltarune and touhou soon  ☆  I'm looking forward to finding more fandoms!** <br>
 
+<img width="1200" height="132" alt="image" src="https://github.com/user-attachments/assets/f92de7c3-4e44-4e93-bf75-71263812c59c" />
 
 ## ⚠️⚠️I'M A MINOR⚠️⚠️
+
+<img width="955" height="106" alt="image" src="https://github.com/user-attachments/assets/c969092a-80ca-4bc0-b2ba-df0b6d4530b4" />
 
 **Discord** - nepmew
 
@@ -55,6 +54,13 @@
 <img width="588" height="592" alt="image" src="https://github.com/user-attachments/assets/976b1eb4-72f1-4790-a666-740a02d02c28" />
 
 <img width="960" height="540" alt="image" src="https://github.com/user-attachments/assets/71c2625c-ec4a-42a2-a9b7-87e60b5e85b9" />
+
+<img width="864" height="226" alt="image" src="https://github.com/user-attachments/assets/505acf3c-d532-482b-8faa-0a1614c82c89" />
+
+<div align="center">
+
+You found these adorable kitties at the bottom! :D
+
 
 
 <!--
