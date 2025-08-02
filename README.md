@@ -1,13 +1,10 @@
 <div align="center">
 
 
-
-<img width="800" height="230" alt="image" src="https://github.com/user-attachments/assets/fcc3ec9e-8d29-49ea-aa25-68822c54d185" />
-
+<img width="800" height="230" alt="image" src="https://github.com/user-attachments/assets/e7f4295d-a6ca-4738-bbea-fb81f9635682" />
 
 
 # *☆ ☆ Hello! ☆ ☆*
-
 
 
 <img width="1200" height="675" alt="image" src="https://github.com/user-attachments/assets/6020d829-6da2-41a8-80ef-f46fc07619c9" />
@@ -19,10 +16,6 @@
 **My pronouns r He/She/They (Genderfluid)** <br>
 
 **I plan to get more into deltarune and touhou soon  ☆  I'm looking forward to finding more fandoms!** <br>
-
-
-
-<img width="1200" height="132" alt="image" src="https://github.com/user-attachments/assets/f92de7c3-4e44-4e93-bf75-71263812c59c" />
 
 
 
@@ -45,10 +38,6 @@
 **!!I'LL TRY MAKING MORE RESPOSITORIES IN THE FUTURE!! I think..**
 
  🐈  🐈  🐈  🐈  🐈  🐈  🐈  🐈  🐈  🐈  🐈  🐈  🐈  🐈  🐈  🐈  🐈  🐈  🐈  🐈  🐈 
-
- 
-
-<img width="588" height="200" alt="image" src="https://github.com/user-attachments/assets/86157550-81c3-4e5d-b522-28cf0c78b778" />
 
 
 
@@ -74,9 +63,6 @@
 😥 Dandy's world fans (I'll make an exception if youre cool ig... Just DON'T reccomend dandy's world to me..)<br>
 😥 If you support AI
  -I'll add more as I think- <br>
-
-
-<img width="341" height="246" alt="image" src="https://github.com/user-attachments/assets/f2e0ee26-119a-48cf-8b06-abf17d78961f" /> <br>
 
 
 
