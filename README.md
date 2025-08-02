@@ -21,6 +21,8 @@
 
 ## ⚠️⚠️I'M A MINOR⚠️⚠️
 
+## FOLLOW AND I'LL FOLLOW BACK!
+
 
 
 <img width="955" height="106" alt="image" src="https://github.com/user-attachments/assets/c969092a-80ca-4bc0-b2ba-df0b6d4530b4" />
