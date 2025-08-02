@@ -20,8 +20,7 @@
 
 
 ## ⚠️⚠️I'M A MINOR⚠️⚠️
-
-## FOLLOW AND I'LL FOLLOW BACK!
+## *FOLLOW AND I'LL FOLLOW BACK!*
 
 
 
