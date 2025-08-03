@@ -44,7 +44,7 @@
 
 ## Stuff about me ᓚᘏᗢ
 
-<div align="center">
+</div>
 
 🐈 I'm usually sitting in ponytown with my friends {mentioned in my bio n stuff} 🐈<br>
 🐈 I've been trying to be nicer lately as i have been pretty rude so I'm working on that! 🐈<br>
