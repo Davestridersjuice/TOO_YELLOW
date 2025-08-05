@@ -56,12 +56,13 @@
 🐈 I LOOVE science. It's so cool figuring out things that are actually REAL! 🐈<br>
 🐈 I may say some really weird thing as a joke and not use /j... I only rlly use /srs or /hj 🐈<br>
 🐈 I REALLY like cats and the color purple... Purple is my fav color its so pretty 🐈<br>
+🐈 I may be a bit uneducated, slow, and annoying at times. If there's ever any problems whether I hurt your feelings, am annoying you, or just doing anything pls speak up!! It's better for me to know and learn than to not know and keep annoying you.🐈<br>
 🐈 That's all I could think of here -_-🐈<br>
 
 ## DNI!!
 
-😥 Darkshippers/proshippers/shota/loli con/and anything else of that problematic nature<br>
-😥 Dandy's world fans (I'll make an exception if youre cool ig... Just DON'T reccomend dandy's world to me..)<br>
+😥 Darkshippers/proshippers/shota/loli con/incel/femcel and anything else of that problematic nature<br>
+😥 Dry texter<br>
 😥 If you support AI<br>
  -I'll add more as I think- <br>
 
