@@ -23,7 +23,6 @@
 ## *FOLLOW AND I'LL FOLLOW BACK!*
 
 
-
 <img width="955" height="106" alt="image" src="https://github.com/user-attachments/assets/c969092a-80ca-4bc0-b2ba-df0b6d4530b4" />
 
 
@@ -38,9 +37,13 @@
 
 **!!I'LL TRY MAKING MORE RESPOSITORIES IN THE FUTURE!! I think..**
 
- 🐈  🐈  🐈  🐈  🐈  🐈  🐈  🐈  🐈  🐈  🐈  🐈  🐈  🐈  🐈  🐈  🐈  🐈  🐈  🐈  🐈 
+ 🐈  🐈  🐈  🐈  🐈  🐈  🐈  🐈  🐈  🐈  🐈  🐈  🐈  🐈  🐈  🐈  🐈  🐈  🐈  🐈  🐈
 
+## My fandoms/games I like:
 
+<img width="102" height="57" alt="image" src="https://github.com/user-attachments/assets/511ee8d7-4521-4f83-ad61-3050a3ac1ca1" /> <img width="103" height="56" alt="image" src="https://github.com/user-attachments/assets/fc528cbf-2ff3-40a3-937b-dde171f01fd4" /> <img width="102" height="56" alt="image" src="https://github.com/user-attachments/assets/4398e10b-615e-44a7-a8f8-4b4093c758b5" />
+
+## WIP
 
 ## Stuff about me ᓚᘏᗢ
 
@@ -48,7 +51,6 @@
 
 🐈 I'm usually sitting in ponytown with my friends {mentioned in my bio n stuff} 🐈<br>
 🐈 I've been trying to be nicer lately as i have been pretty rude so I'm working on that! 🐈<br>
-🐈 I like roblox (Die of death, Forsaken, etc..), currently focused on tgcf, danganronpa (All versions!), children of light: sky, etc.. 🐈<br>
 🐈 I'm usually watching yt or offtab while on pt (ponytown) unless I'm chatting with friends 🐈<br>
 🐈 I like to use emoticons lots! And I sometimes simplify/shorten words to type faster... 🐈<br>
 🐈 I'm usually very open with my weirdness so pls tell me if I ever make u uncomfy or anything! 🐈<br>
