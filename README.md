@@ -43,6 +43,9 @@
 
 <img width="102" height="57" alt="image" src="https://github.com/user-attachments/assets/511ee8d7-4521-4f83-ad61-3050a3ac1ca1" /> <img width="103" height="56" alt="image" src="https://github.com/user-attachments/assets/fc528cbf-2ff3-40a3-937b-dde171f01fd4" /> <img width="102" height="56" alt="image" src="https://github.com/user-attachments/assets/4398e10b-615e-44a7-a8f8-4b4093c758b5" />
 
+<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/e248ddbe-7354-4525-8584-dfaae92e85d2" /> Roblox (Forsaken, DOD, SEWH, Catalog avatar, etc.. <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/59bf8ce2-0990-42f8-b41c-ccc49358806b" />
+
+
 ## WIP
 
 ## Stuff about me ᓚᘏᗢ
@@ -59,7 +62,7 @@
 🐈 I may say some really weird thing as a joke and not use /j... I only rlly use /srs or /hj 🐈<br>
 🐈 I REALLY like cats and the color purple... Purple is my fav color its so pretty 🐈<br>
 🐈 I may be a bit uneducated, slow, and annoying at times. If there's ever any problems whether I hurt your feelings, am annoying you, or just doing anything pls speak up!! It's better for me to know and learn than to not know and keep annoying you.🐈<br>
-🐈 That's all I could think of here -_-🐈<br>
+
 
 ## DNI!!
 
