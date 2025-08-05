@@ -1,6 +1,5 @@
 <div align="center">
 
-
 <img width="800" height="230" alt="image" src="https://github.com/user-attachments/assets/e7f4295d-a6ca-4738-bbea-fb81f9635682" />
 
 
@@ -23,8 +22,6 @@
 ## *FOLLOW AND I'LL FOLLOW BACK!*
 
 
-<img width="955" height="106" alt="image" src="https://github.com/user-attachments/assets/c969092a-80ca-4bc0-b2ba-df0b6d4530b4" />
-
 
 
 **Discord** - nepmew
@@ -37,7 +34,7 @@
 
 **!!I'LL TRY MAKING MORE RESPOSITORIES IN THE FUTURE!! I think..** 
 
-<img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/55648e3a-b375-4a99-9c0d-12c25efa4823" /> <img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/ac84cc4d-e1b2-499d-a666-deef77dea52f" /> <img width="105" height="61" alt="image" src="https://github.com/user-attachments/assets/f6be6c56-42f6-4ad0-9361-0d0a4d4dbe89" />
+<img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/55648e3a-b375-4a99-9c0d-12c25efa4823" /> <img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/ac84cc4d-e1b2-499d-a666-deef77dea52f" /> 
 
 
 ## My fandoms/games I like:
@@ -86,10 +83,7 @@
 
 <img width="800" height="230" alt="image" src="https://github.com/user-attachments/assets/f47197f9-4381-453b-acaa-92c42727ce0a" />
 
-
-
-<img width="960" height="540" alt="image" src="https://github.com/user-attachments/assets/6e171f89-5e30-4f52-abba-d9a6ce3c8ee1" />
-
+<img width="2048" height="687" alt="image" src="https://github.com/user-attachments/assets/1fa107d3-9d65-4ef9-89c3-93c667dd9c21" />
 
 
 <img width="864" height="226" alt="image" src="https://github.com/user-attachments/assets/505acf3c-d532-482b-8faa-0a1614c82c89" />
